@@ -1,4 +1,1 @@
-<img width="735" height="245" alt="1000013393" src="https://github.com/user-attachments/assets/2bce7ffa-f6b3-49df-a761-faa8765120e8" />
-
-Chance Fictoject/Fictive, Gatekeeper
-I front on occasion
+<img width="56" height="36" alt="1000013394" src="https://github.com/user-attachments/assets/ed1e2a89-b7fd-4377-9786-86998d9d85a6" />
